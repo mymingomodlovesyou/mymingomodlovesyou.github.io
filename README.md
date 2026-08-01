@@ -1,2 +1,1 @@
-# mymingomodlovesyou.com
-mingo
+remember that my mingo mod loves you
